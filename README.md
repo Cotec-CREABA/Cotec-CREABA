@@ -20,7 +20,7 @@ Bem-vindo ao repositório da COTEC, a Coordenação de Tecnologia do Conselho Re
 **Cargo:** Técnico de Informática  
 
 ### Bruno Araujo
-**Cargo:** Estagiário  
+**Cargo:** Ex-funcionário, saiu por 50 reais a mais no VR, ficará em nossas memórias  
 
 ## Contato
 
